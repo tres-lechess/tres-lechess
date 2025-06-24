@@ -20,13 +20,10 @@ ADHD/Autism Lvl 3 . Don't come after me, try fake claim that I don't have it. ye
 
 Dyslexia
 
-1. I am an insensitive person, so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
+1. Please respect my boundaries. I am an insensitve person so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
 
-2. Please respect my boundaries 
-
-3. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
-
-4 .  Please keep in mind that I have abandonment issues and others. I'm sorry if I become clingyy. If you feel uncomfortable, please let me know.
+ 
+2. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
 
   
  ___________________________________________________________________________
